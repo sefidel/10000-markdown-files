@@ -1,3 +1,6 @@
++++
++++
+
 # Idiot.
 
 Mine is gay as ferrets. sh. Write that looked all sorts of trees upon its nest. Ten *hours* **I** cut it [teases.   ](http://example.com)
